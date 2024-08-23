@@ -1,3 +1,3 @@
 # Part2
 Part 2
-https://docs.google.com/presentation/d/1soOOZNBSBDjRMFsMhdc_uF87vHvlJWDE/edit?usp=drivesdk&ouid=107395043513064804406&rtpof=true&sd=true
+https://drive.google.com/drive/folders/14ToYJ4LH5w1vB2TF_v-dzamCns_U8cBe
